@@ -11,7 +11,7 @@ novels >* misvil, erha, svsss.
 
 Manhwa/webtoon >* predatory marriage, serena serenity, cry or better yet beg, itmtwu.
 
-Music{artist} >* enhypen, katseye, Rocco, KIDO3008, kendrick lamar (lately into deftones & slipknot!!)
+Music{artist} >* enhypen, katseye, Rocco, KIDO3008, lately into deftones !!
 
 
-I'm actually awkward at first but trust, im acc a freak ://.. please do cuds/int if you saw me on pt! i don't bite...
+I'm actually awkward at first but trust, im a freak ://.. please do cuds/int freely if you saw me on pt! i don't bite...
